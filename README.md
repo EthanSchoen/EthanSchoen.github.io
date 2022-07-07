@@ -1,1 +1,1 @@
-# Personal Website, domain from Namecheap
+# Personal Website
